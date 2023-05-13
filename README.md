@@ -33,6 +33,11 @@ ________________________________________________________________________________
 ##### •	Never immerse the appliance in water or any other liquid to clean.
 ##### •	After cleaning the appliance keep the appliance in a safe and dry place free of dust or keep it inside any hair straightener pouch or you can even buy a ‘VEGA” Stylers pouch.
 ##### •	Do not wind/wrap the main wire cord around the appliance.
+_________________________________________________________________________________________________________________________
+### **Caution**
+##### 	Please read this User Manual carefully before operating this appliance.
+##### 	While purchasing the appliance, please ensure that the Warranty Card is enclosed.
+
 
 
 
