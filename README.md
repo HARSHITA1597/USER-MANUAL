@@ -1,6 +1,2 @@
-# HEADING LEVEL 1
-## HEADING LEVEL 2
-### HEADING LEVEL 3
-#### HEADING LEVEL 4
-##### HEADING LEVEL 5
-###### HEADING LEVEL 6
+##Vega 3 in 1 Hair Styler, (India's No.1* Hair Styler Appliance), Hair Straightener, Curler & Crimper
+
