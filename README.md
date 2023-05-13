@@ -24,6 +24,18 @@ ________________________________________________________________________________
 ##### •	Hold plates firmly closed with the hair section in between sliding the hair straightener or hair crimper down and off the section of hair.
 ##### •	After one section is straightened or crimped move to another section and repeat the process until all the hair is straightened or crimped.
 ##### •	Upon completion slide, the switch to the off position, unplug the cord.
+![image](https://github.com/HARSHITA1597/USER-MANUAL/assets/133485355/3be4bd90-19ec-4c1d-a45e-55c7310d8a49)
+____________________________________________________________________________________________________________________
+### **Maintenance and Care**
+##### •	Always ensure to clean the appliance only after it has cooled down and the plug is removed from the electric socket.
+##### •	To clean the appliance using a soft and clean damp cloth.
+##### •	Never use any chemical or alcohol, thinner, benzene, or remover to clean the
+##### •	Never immerse the appliance in water or any other liquid to clean.
+##### •	After cleaning the appliance keep the appliance in a safe and dry place free of dust or keep it inside any hair straightener pouch or you can even buy a ‘VEGA” Stylers pouch.
+##### •	Do not wind/wrap the main wire cord around the appliance.
+
+
+
 
 
 
